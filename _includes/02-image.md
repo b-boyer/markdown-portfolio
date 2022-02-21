@@ -1,0 +1,1 @@
+![Image of Baptiste](https://www.google.com/url?sa=i&url=https%3A%2F%2Fmario.fandom.com%2Ffr%2Fwiki%2FLink&psig=AOvVaw0-pRRlEUjn5_BIWOKiAjlL&ust=1645548494449000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCOjZmP2fkfYCFQAAAAAdAAAAABAJ)
